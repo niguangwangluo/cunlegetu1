@@ -1,23 +1,2 @@
-[有没有一种可能，99%的小白都能学会如何下载IG视频到手机相册！][https://www.toutiao.com/article/7296750650602603023/
-![image](https://github.com/user-attachments/assets/7ae558e4-2c36-4a51-b189-08c77a0dfc5c)
-]
-[再不学会要落伍啦！这个保存Facebook视频到手机相册的教程真牛！][toutiao2]
-[一个很变态，但是可以轻松下载Instagram快拍到手机相册的方法！][toutiao3]
-[不是我吹！能轻松拿下YouTube 4k视频保存在手机相册的我只服他！][toutiao4]
-[我真的会谢！怎么早没有发现这个Instagram存图到手机相册的方法][toutiao5]
-[反正我爱了！这个保存YouTube 1080p视频到手机相册的办法真绝了！][toutiao6]
-[轻松保存脸书视频到手机相册真的不是梦！小白们都能闭眼学会！][toutiao7]
-[能轻松拿下Instagram快拍并保存在手机相册里的岂能是池中物！][toutiao8]
-[我要吹爆这个在IG上存图到手机相册的办法，真的太牛了！][toutiao9]
-[Instagram视频保存到手机相册的秘方来啦！速速前来接收！][toutiao10]
-[不是我吹！学会这个方法分分钟能拿下Pinterest视频到手机相册！][toutiao11]
-[来了来了！保存TikTok视频到手机相册最简单的方法来了！][toutiao12]
-[也没啥，就想告诉大家一个下载Pinterest视频到手机相册的方法！][toutiao13]
-[关于我如何成功下载Vimeo视频到手机相册的办法~][toutiao14]
-[小小Rumble视频，我轻而易举就能保存到手机相册里去！][toutiao15]
-[太不容易了！我终于找到保存NicoVideo视频到手机相册的方法了！][toutiao16]
-[再多看一眼，保证你会爱上这个保存Rumble视频到手机相册的方法！][toutiao17]
-[So crazy！这个下载NicoVideo视频到手机相册的教程终于来了！][toutiao18]
-[我的天！没想到Triller视频竟然这么简单就能保存到手机相册中！][toutiao19]
-[嘎嘎好用！这个保存Vimeo视频到手机相册会上瘾是他唯一的缺点！][toutiao20]
-[WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！][toutiao21]
+[有没有一种可能，99%的小白都能学会如何下载IG视频到手机相册！
+]![image](https://github.com/user-attachments/assets/e9da04e6-47ed-42ed-9d68-33da6040daca)
