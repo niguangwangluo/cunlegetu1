@@ -21,8 +21,8 @@
 [WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！]	(https://www.toutiao.com/article/7319367928183308809/)<br>
 
 
-[WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！]([https://github.com/](https://www.toutiao.com/article/7319367928183308809))
+[WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！](https://www.toutiao.com/article/7319367928183308809)
 
-[WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！][[github](https://www.toutiao.com/article/7319367928183308809)]
+[WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！][https://www.toutiao.com/article/7319367928183308809]
 
 [WOW！比珍珠还真的YouTube视频字幕下载教程终于被我找到了！]: https://www.toutiao.com/article/7319367928183308809
