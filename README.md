@@ -1,5 +1,5 @@
-[有没有一种可能，99%的小白都能学会如何下载IG视频到手机相册！][[toutiao1](https://www.toutiao.com/article/7296750650602603023/
-)![image](https://github.com/user-attachments/assets/65bccc76-98d0-4646-8dd3-c080a6cf1cf0)
+[有没有一种可能，99%的小白都能学会如何下载IG视频到手机相册！][https://www.toutiao.com/article/7296750650602603023/
+![image](https://github.com/user-attachments/assets/7ae558e4-2c36-4a51-b189-08c77a0dfc5c)
 ]
 [再不学会要落伍啦！这个保存Facebook视频到手机相册的教程真牛！][toutiao2]
 [一个很变态，但是可以轻松下载Instagram快拍到手机相册的方法！][toutiao3]
