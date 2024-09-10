@@ -4,7 +4,7 @@
 
 [[github](https://github.com/)]
 
-[github]: https://github.com/
+
 
 
 有没有一种可能，99%的小白都能学会如何下载IG视频到手机相册！
